@@ -1,4 +1,4 @@
-─ Boas vindas ao meu perfil! ୨୧
+─ Boas vindas ao meu perfil prç 
 
   Meu nome é thay ☘️
 
@@ -13,3 +13,5 @@
 ★ ࣪ Você pode entrar em contato comigo! 📞⋆
 
 00001118455891sp@al.educacao.sp.gov.br
+
+fort abraço,tmj.
