@@ -1,11 +1,12 @@
-Boas vindas ao meu perfil!
+─ Boas vindas ao meu perfil! ୨୧
+  Meu nome é thay ☘️
 
-Meu nome é thaynara soares
+ ࣪ Estou estudando na Alura
+ ࣪ Estou me desenvolvendo 
+  na linguagem JavaScript.
+ ࣪ Utilizo esse espaço para o 
+ meu compartilhamento de trabalho 
 
-Estou estudando na Alura
-Estou me desenvolvendo na linguagem JavaScript
-Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
-
-Você pode entrar em contato comigo 📫
+★ ࣪ Você pode entrar em contato comigo! 📞⋆
 
 00001118455891sp@al.educacao.sp.gov.br
